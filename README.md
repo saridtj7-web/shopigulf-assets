@@ -1,0 +1,1 @@
+# shopigulf-assets
